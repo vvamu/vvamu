@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: Im 19 years old and I have the husband(not good joke)
 
 And I realy like everething cute...
-![image](https://github.com/vvamu/vvamu/assets/76022764/015708b3-38ad-496f-97d2-2bb795d0d198)
+![gif](https://github.com/vvamu/vvamu/assets/76022764/015708b3-38ad-496f-97d2-2bb795d0d198)
