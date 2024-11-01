@@ -1,10 +1,5 @@
 ### Hi there 👋
 
-- 😔 I’m looking for help with find a work please..
-- 🥚 I’m 20 years old.
-- 🍉 I can't eat flour
-- 🐹 And realy like everething cute
-
 ![Alt Text](https://user-images.githubusercontent.com/79518089/141609256-ddcafafa-dca0-4cc3-b203-008e441ae2a2.gif)
 ![Alt Text](https://user-images.githubusercontent.com/79518089/141609256-ddcafafa-dca0-4cc3-b203-008e441ae2a2.gif)
 ![Alt Text](https://user-images.githubusercontent.com/79518089/141609256-ddcafafa-dca0-4cc3-b203-008e441ae2a2.gif)
